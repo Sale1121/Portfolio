@@ -1,0 +1,1 @@
+I have more than 2 years' experience . Below is a quick overview of my main technical skill sets and technologies I use. Want to find out more about my experience? Check out my online resume and project portfolio.
